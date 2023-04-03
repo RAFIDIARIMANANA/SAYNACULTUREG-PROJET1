@@ -1,2 +1,5 @@
 # SAYNACULTUREG-PROJET1
-document DE CULTURE GENERALE
+Traitement d'information
+podgasts
+reseaux sociaux
+classement commente
